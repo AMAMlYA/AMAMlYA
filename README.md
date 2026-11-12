@@ -6,7 +6,9 @@
 </p>
 
 
-
+<p align="center">
+‎ ‎ ‎ i color in a range of different shades and styles, let me know if mine resembles yours 
+</p>
 <p align="center">
 ‎ ‎ ‎ ‎
 </p>
