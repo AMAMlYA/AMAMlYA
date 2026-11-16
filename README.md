@@ -15,10 +15,10 @@
 <p align="center">
 unless used in an offense way and you do it to harass others by impersonating me
 <p align="center">
-‎ ‎ ‎ ‎
+‎ ‎ ‎ ‎i’m also apathetic in a sense where i cannnot bring myself to care about you until we have a close bond 
 </p>
 <p align="center">
-‎ ‎ ‎ ‎
+‎ ‎ ‎ ‎i’m also on the spectrum so yeah tell me if i’m too much or you find me annoying
 </p>
 
 <p align="center">
