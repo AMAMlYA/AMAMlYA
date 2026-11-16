@@ -13,7 +13,7 @@
 ‎ ‎ ‎ but i do not care if you take inspo or copy my ponies, its literally pixels i dont gaf
 </p>
 <p align="center">
-
+unless used in an offense way and you do it to harass others by impersonating me
 <p align="center">
 ‎ ‎ ‎ ‎
 </p>
