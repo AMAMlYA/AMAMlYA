@@ -1,5 +1,5 @@
 <p align="center">
-‎ ‎ ‎ ‎ic: @burgerwrld 
+‎ ‎ ‎ ‎ic: @burgerwrld ( x ) or @pulpdjuice ( insta )
 </p>
 <p align="center">
 ‎ ‎ ‎ 
